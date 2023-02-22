@@ -1,1 +1,1 @@
-https://github.com/Matveyconorov/Spase_gp.io.git
+https://github.com/Matveyconorov/https-Space-Z.github.io-all-index.html.git
