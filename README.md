@@ -1,1 +1,1 @@
-https://space-z.github.io/all/index.html#
+https://space-z.github.io/index.html#
